@@ -10,3 +10,7 @@ Es scheint so, als müsste ich diese euch unbedingt mitteieln.
 * Captain Marvel
  * ihre Kämpfer
  * ihre Kraft
+
+As she said:
+> Was? Das soll Energie sein?
+> das ist Energie!!!
